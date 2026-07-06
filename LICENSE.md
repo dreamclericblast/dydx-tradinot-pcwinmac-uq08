@@ -1,4 +1,4 @@
-# 
+# Elite dydx trading bot complementos for Mac OS | Ultimato dydx trading bot complementos for PC Windows. Featuring pools de liquidez DEX and análise de momento — optimized for maximum performance.
 
 
 
